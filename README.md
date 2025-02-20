@@ -1,5 +1,5 @@
 # 💫 About Me:
-im studying mca at amrita school of computing mysuru
+I am studying MCA at Amrita School of Computing, Mysuru.
 
 
 ## 🌐 Socials:
